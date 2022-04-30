@@ -1,4 +1,5 @@
 Andriy Demchuk
+I am from ukraine, Rivne town.
 email: valeor357@gmail.com
 phone: +380978660381
 I want to become frontend developer. I like to create something new and constantly becoming better at coding. Because it`s interesting and helps peoples with their problems.
